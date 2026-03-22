@@ -1,2 +1,0 @@
-# biopic
-clothing sale 
